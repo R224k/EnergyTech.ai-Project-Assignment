@@ -1,1 +1,0 @@
-# EnergyTech.ai-Project-Assignment
